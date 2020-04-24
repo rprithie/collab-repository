@@ -1,0 +1,2 @@
+rprithie- Paragraph from Skyward, "To join us, you have to be able to follow instructions," the man said. "you have to be willing to do your part, no matter how insignificant it may seem. Remember, obedience is defiance."
+I got it, and to an extent agreed with him. Pilots wouldn't get far in the war without water, or food, or sanitation. 
